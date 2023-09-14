@@ -1,0 +1,1 @@
+# Prediction_of_Death_Situation_of_Covid
